@@ -1,4 +1,4 @@
-# Expercia en el Gimnasio
+# Experiencia en el Gimnasio
 ![image](https://github.com/user-attachments/assets/9b6499bf-298a-4d1a-80d1-891a73859ab1)
 
 
